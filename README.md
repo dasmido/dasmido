@@ -11,4 +11,4 @@ I'm Mohammed, Microsoft Certified-AZ-900, senior software engineer, researcher a
 
 
 ## 📫 How to reach me:
-jamalmohamad.ik@gmail.com
+contact@dasmido.dev
